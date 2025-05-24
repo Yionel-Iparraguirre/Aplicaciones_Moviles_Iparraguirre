@@ -1,0 +1,2 @@
+# Actividad 02 ELABORA UN FIGMA
+
